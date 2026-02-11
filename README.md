@@ -1,9 +1,9 @@
-### About me
 
 <p align="center">
-  <img src="/images/me.JPG" width="200" />
+  <img src="/images/me.png" width="200" />
 </p>
 
+### About me
 
 Hello! My name is Arohee (pronounced AH-roh-hee), I use any pronouns, and I am a self- and community-taught handpoke tattoo artist based in Pittsburgh, PA. Much of my work is whimsical and abstract, inspired by natural forms and vintage ornament. I have always found tattooing to be a form of liberation -- a reclamation of one's body and the way it is perceived, and a commitment to honoring one's own authentic self in a society that expects assimilation and privileges invisibility.
 
