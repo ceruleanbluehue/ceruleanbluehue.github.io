@@ -6,7 +6,7 @@ Hello! My name is Arohee (pronounced AH-roh-hee), I use any pronouns, and I am a
 
 I came to tattooing in late 2025 as part of a journey to reconnect with my creativity, and I am immensely grateful for the kindness, generosity, and trust I have received from the community in such a short time. 
 
-![Star flower](/images/star.JPG){width=200px} ![Sand dollar](/images/sanddollar.JPG){width=200px} ![Metal flower](/images/metal.JPG){width=200px} ![Spiky flower](/images/spiky.JPG){width=200px}
+![tattoos](/images/tattoos.JPG)
 
 ### How to book
 
