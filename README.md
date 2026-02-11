@@ -10,7 +10,7 @@ My books are always open for flash or custom pieces!
 
 For booking flash: DM me on Instagram with the piece you're interested in and size/placement info, and we'll get something scheduled. I'm more than happy to modify or collage flash, both beforehand or on the day of your appointment. You are always allowed to change your mind about design, size, and/or placement, no worries!
 
-For booking custom: same thing except describe your vision -- you can be as general or specific as you want! I generally do not send custom designs before the appointment, but we will have plenty of time to make changes on the day of your appointment until you're completely happy with the piece. 
+For booking custom: same thing except describe your vision -- you can be as general or specific as you want! I generally do not send custom designs in advance, but we will have plenty of time to make changes during your appointment until you're completely happy with the piece. 
 
 ### Housekeeping
 
