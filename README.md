@@ -21,6 +21,8 @@ For booking custom: same thing except describe your vision -- you can be as gene
 
 ### Housekeeping
 
+I take safety and cleanliness seriously! I am bloodborne pathogen certified and I am committed to following proper sanitation procedures.
+
 Location: I work out of my home studio in Shadyside -- I will provide the address and further details after confirming your appointment. I am located near a stop on the East Busway, and I am also very accessible via local bus lines :) My space is pretty small, so please let me know beforehand if you would like to bring a guest.
 
 Late policy: Life happens, I totally understand! But please give me a heads up if you know you will be more than ten minutes late, and if you're running more than half an hour late we may have to reschedule your appointment. 
