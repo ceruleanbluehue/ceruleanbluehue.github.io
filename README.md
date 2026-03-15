@@ -33,6 +33,8 @@ Tipping: Tips are very appreciated but not at all expected. I also love non-mone
 
 Touch-ups: Always free! Reach out after your tattoo is healed and we'll set something up.
 
+Sister: My older sister writes poetry, [learn about it here!](https://arusheebhoja.carrd.co/)
+
 ### Pricing
 
 Beginning February 2026: most of my flash is around $50-150 depending on size and complexity. I am more than happy to work with your budget or provide a price quote. I also offer discounts for multiple pieces in one session!
