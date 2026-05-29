@@ -1,4 +1,5 @@
 instagram: [cerulean__blue__hue](http://instagram.com/cerulean__blue__hue)
+
 email: ceruleanbluetattoo at gmail dot com.
 
 [about me](#about-me)
@@ -32,7 +33,7 @@ I am committed to providing a safe and comfortable environment for you to get ta
 - You are always allowed to change your mind about design, size, or placement, as long as it can be done in the time we have allotted or split up into multiple sessions. 
 
 ### Custom appointments
-- Customs are one-of-one, but I'm happy to make similar pieces!
+- Customs are one-of-one, but I'm happy to make something similar to past custom work!
 - When booking a custom, describe your vision as specifically as you like. If you include reference images of other artists' work, please describe how you would like them to inspire our design (e.g. elements you like, color, texture, placement). It also helps if you include multiple pictures (think moodboard/vibe check rather than "I want this specific piece from this other artist"). 
 - I generally do not send custom designs in advance, but we will have plenty of time to make changes during your appointment. You are always allowed to request edits!
 - If significant edits are required, we will discuss and collaborate on design during the appointment, and then I'll schedule you in for another session to complete the tattoo.
