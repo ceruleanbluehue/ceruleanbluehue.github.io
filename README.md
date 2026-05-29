@@ -1,14 +1,8 @@
-instagram: [cerulean__blue__hue](http://instagram.com/cerulean__blue__hue)
-
-email: ceruleanbluetattoo at gmail dot com.
-
-[about me](#about-me)
-
-[booking](#booking)
-
-[before your appointment](#before-your-appointment)
-
-[aftercare](#aftercare)
+- Instagram: [cerulean__blue__hue](http://instagram.com/cerulean__blue__hue)
+- Email: ceruleanbluetattoo at gmail dot com.
+- [Booking](#booking)
+- [Before Your Appointment](#before-your-appointment)
+- [Aftercare](#aftercare)
 
 
 <!-- <p align="center">
