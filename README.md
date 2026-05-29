@@ -93,7 +93,7 @@ After your tattoo is healed (~3-4 weeks), protect it with sunscreen to avoid fad
 
 ## Fun facts
 - I studied math in undergrad and am starting my PhD in computer science in a couple months :) Talk to me about discrete math, interactive theorem proving, computer science pedagogy, or why we need to stop using AI for everything especially art and creative endeavors and also things it is notably bad at (this Venn diagram is two concentric circles).
-- I love urbanism and public transit! I also love listening to podcasts and watching video essays. Let me know if you want to watch a video essay during our appointment
+- I love urbanism and public transit! I also love listening to podcasts and watching video essays. Please let me know if you want to watch a video essay during our appointment
 - My older sister writes poetry, [learn about it here!](https://arusheebhoja.carrd.co/)
 
 
