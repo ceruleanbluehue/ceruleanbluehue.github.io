@@ -17,13 +17,12 @@ Much of my work is whimsical and abstract, inspired by natural forms and vintage
 
 I am committed to providing a safe and comfortable environment for you to get tattooed -- this means cleanliness, safety (I am bloodborne pathogen certified), and honoring your bodily autonomy and consent. 
 
-![tattoos](/images/tattoos-jun-26.png)
-
+![tattoos](/images/tattoos-jun-26.jpg)
 
 
 ## Fun facts
-- I studied math in undergrad and am starting my PhD in computer science in a couple months :) Talk to me about discrete math, interactive theorem proving, computer science pedagogy, or why we need to stop using AI for everything especially art and creative endeavors and also things it is notably bad at (this Venn diagram is two concentric circles).
-- I love urbanism and public transit! I also love listening to podcasts and watching video essays. Please let me know if you want to watch a video essay during our appointment
+- I studied math in undergrad and am starting my PhD in computer science in a couple months! Talk to me about discrete math, interactive theorem proving, computer science pedagogy, or why we need to stop using AI for everything especially art and creative endeavors and also things it is notably bad at (this Venn diagram is two concentric circles).
+- I love urbanism and public transit! I also love listening to podcasts and watching video essays. Please let me know if you want to watch a video essay during our appointment :)
 - My older sister writes poetry, [learn about it here!](https://arusheebhoja.carrd.co/)
 
 

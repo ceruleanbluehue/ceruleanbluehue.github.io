@@ -13,7 +13,7 @@
 - If significant edits are required, we will discuss and collaborate on design during the appointment, and then I'll schedule you in for another session to complete the tattoo.
 
 ### Deposits
-- Beginning June 2026: I require a nonrefundable $50 deposit to confirm your appointment, which will go towards the total cost of your tattoo :) Please be deposit ready when submitting a booking request!
+- Beginning June 2026: I require a nonrefundable $50 deposit sent via Venmo or Zelle to confirm your appointment, which will go towards the total cost of your tattoo :) Please be deposit ready when submitting a booking request!
 - Your deposit will be *refunded* if I have to cancel our appointment and we can't find a time to reschedule.
 - Your deposit will *not be refunded, but can be applied to a future tattoo* if you cancel or reschedule more than 24 hours in advance.
 - Your deposit will be *forfeit, and a new deposit will be required to rebook* if you no-show or cancel/reschedule less than 24 hours in advance. Exceptions may be made on a case-by-case basis -- if something urgent comes up please let me know!
@@ -35,7 +35,9 @@
 - Handpoke is a labor of love! Please do not schedule anything directly after your tattoo :)
 
 ### How to book
-I accept booking requests via email: ceruleanbluetattoo at gmail dot com. In your email, please include:
-- Design, size (in inches), and placement info
-- Budget
-- Days of week and times of day you're generally available (e.g. "I'm usually available on Mondays and Thursdays after 3pm" or "Weekends anytime are best for me")
+- I accept booking requests via email: ceruleanbluetattoo at gmail dot com. In your email, please include:
+    - Design, size (in inches), and placement info
+    - Budget
+    - Days of week and times of day you're generally available (e.g. "I'm usually available on Mondays and Thursdays after 3pm" or "Weekends anytime are best for me")
+- We will decide on a date, and then I'll have you confirm your appointment by sending over the deposit.
+- Once your appointment is confirmed, I will send you my address, phone number for last-minute communications, and [other pre-appointment info](/before-appointment.md)! 
