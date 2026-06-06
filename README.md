@@ -28,9 +28,16 @@ I am committed to providing a safe and comfortable environment for you to get ta
 
 ### Custom appointments
 - Customs are one-of-one, but I'm happy to make something similar to past custom work!
+- I'm open to tattooing found art and images on a case-by-case basis, but I do not tattoo pieces by working contemporary artists.
 - When booking a custom, describe your vision as specifically as you like. If you include reference images of other artists' work, please describe how you would like them to inspire our design (e.g. elements you like, color, texture, placement). It also helps if you include multiple pictures (think moodboard/vibe check rather than "I want this specific piece from this other artist"). 
 - I generally do not send custom designs in advance, but we will have plenty of time to make changes during your appointment. You are always allowed to request edits!
 - If significant edits are required, we will discuss and collaborate on design during the appointment, and then I'll schedule you in for another session to complete the tattoo.
+
+### Deposits
+- Beginning June 2026: I require a nonrefundable $50 deposit to confirm your appointment, which will go towards the total cost of your tattoo :) Please be deposit ready when submitting a booking request!
+- Your deposit will be refunded: if I have to cancel our appointment and we can't find a time to reschedule.
+- Your deposit will not be refunded, but can be applied to a future tattoo: if you cancel or reschedule more than 24 hours in advance.
+- Your deposit will be forfeit, and a new deposit will be required to rebook: if you no-show or cancel/reschedule less than 24 hours in advance. Exceptions may be made on a case-by-case basis -- if something urgent comes up please let me know!
 
 ### Pricing
 - My minimum quote is $50 and my average quote is around $150-200. I am happy to provide pricing info prior to your appointment!
