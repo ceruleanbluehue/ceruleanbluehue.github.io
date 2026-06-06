@@ -17,7 +17,7 @@ Much of my work is whimsical and abstract, inspired by natural forms and vintage
 
 I am committed to providing a safe and comfortable environment for you to get tattooed -- this means cleanliness, safety (I am bloodborne pathogen certified), and honoring your bodily autonomy and consent. 
 
-<!-- ![tattoos](/images/tattoos.jpg) -->
+![tattoos](/images/tattoos-jun-26.png)
 
 
 
