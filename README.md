@@ -35,9 +35,9 @@ I am committed to providing a safe and comfortable environment for you to get ta
 
 ### Deposits
 - Beginning June 2026: I require a nonrefundable $50 deposit to confirm your appointment, which will go towards the total cost of your tattoo :) Please be deposit ready when submitting a booking request!
-- Your deposit will be refunded: if I have to cancel our appointment and we can't find a time to reschedule.
-- Your deposit will not be refunded, but can be applied to a future tattoo: if you cancel or reschedule more than 24 hours in advance.
-- Your deposit will be forfeit, and a new deposit will be required to rebook: if you no-show or cancel/reschedule less than 24 hours in advance. Exceptions may be made on a case-by-case basis -- if something urgent comes up please let me know!
+- Your deposit will be *refunded* if I have to cancel our appointment and we can't find a time to reschedule.
+- Your deposit will *not be refunded, but can be applied to a future tattoo* if you cancel or reschedule more than 24 hours in advance.
+- Your deposit will be *forfeit, and a new deposit will be required to rebook* if you no-show or cancel/reschedule less than 24 hours in advance. Exceptions may be made on a case-by-case basis -- if something urgent comes up please let me know!
 
 ### Pricing
 - My minimum quote is $50 and my average quote is around $150-200. I am happy to provide pricing info prior to your appointment!
