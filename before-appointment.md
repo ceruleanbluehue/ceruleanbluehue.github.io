@@ -1,4 +1,4 @@
-## Before your appointment 
+## Before Your Appointment 
 
 ### Location
 - I work out of my home studio in Shadyside -- I will provide the address after confirming your appointment. I am located near a stop on the East Busway, and I am also very accessible via local bus lines. 
