@@ -25,11 +25,18 @@ a:visited {
   color: #bdd825;
 }
 
-h1, h2, h3, h4 {
+h1, h2, h3 {
     font-family: pixelfont;
     color: #457bf7;
     font-weight: normal;
     font-style: normal;
+}
+
+h4 {
+   font-family: pixelfont;
+    color: #78a0ff;
+    font-weight: normal;
+    font-style: normal; 
 }
 
 .markdown-body, body {
