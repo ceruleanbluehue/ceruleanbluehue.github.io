@@ -41,6 +41,10 @@ h4 {
     letter-spacing: -12%;
 }
 
+ul {
+    list-style-type: square;
+}
+
 .markdown-body, body {
     font-family: mainfont;
     font-size: 1.15em;
