@@ -30,6 +30,7 @@ h1, h2, h3 {
     color: #457bf7;
     font-weight: normal;
     font-style: normal;
+    letter-spacing: -5%;
 }
 
 h4 {
@@ -37,6 +38,7 @@ h4 {
     color: #78a0ff;
     font-weight: normal;
     font-style: normal; 
+    letter-spacing: -5%;
 }
 
 .markdown-body, body {
