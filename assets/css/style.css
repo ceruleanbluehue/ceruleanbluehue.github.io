@@ -15,9 +15,10 @@
 h1, h2, h3, h4 {
     font-family: pixelfont;
     color: blue;
+    font-weight: normal;
+    font-style: normal;
 }
 
 .markdown-body, body {
     font-family: mainfont;
-    color: blue;
 }
