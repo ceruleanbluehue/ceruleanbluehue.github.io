@@ -13,7 +13,7 @@
 - If significant edits are required, we will discuss and collaborate on design during the appointment, and then I'll schedule you in for another session to complete the tattoo.
 
 #### Deposits
-- Beginning June 2026: I require a nonrefundable $50 deposit sent via Venmo or Zelle to confirm your appointment, which will go towards the total cost of your tattoo :) Please be deposit ready when submitting a booking request!
+- I require a nonrefundable $50 deposit sent via Venmo or Zelle to confirm your appointment, which will go towards the total cost of your tattoo :) Please be deposit ready when submitting a booking request!
 - Your deposit will be *refunded* if I have to cancel our appointment and we can't find a time to reschedule.
 - Your deposit will *not be refunded, but can be applied to a future tattoo* if you cancel or reschedule more than 24 hours in advance.
 - Your deposit will be *forfeit, and a new deposit will be required to rebook* if you no-show or cancel/reschedule less than 24 hours in advance. Exceptions may be made on a case-by-case basis -- if something urgent comes up please let me know!

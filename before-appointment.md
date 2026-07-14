@@ -1,8 +1,7 @@
 ### Before Your Appointment 
 
 #### Location
-- I work out of my home studio in Shadyside -- I will provide the address after confirming your appointment. I am located near a stop on the East Busway, and I am also very accessible via local bus lines. 
-- There is free parking nearby, limited to 2 hours on weekdays between 11am and 6pm. You are welcome to take a break during your appointment to move your car down the block :) There is also a parking garage and metered street parking nearby!
+- I work out of my home studio in Harlem -- I will provide the address after confirming your appointment.
 
 #### Payment 
 - I accept cash, Venmo, and Zelle, with a slight preference for Zelle but really all are good with me :)

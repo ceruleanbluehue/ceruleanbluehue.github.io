@@ -11,7 +11,7 @@
 
 ### About me
 
-Hello! My name is Arohee (pronounced AH-roh-hee), I use any pronouns, and I'm a handpoke tattoo artist based in Pittsburgh, PA until the end of July, and then New York City after that! 
+Hello! My name is Arohee (pronounced AH-roh-hee), I use any pronouns, and I'm a handpoke tattoo artist based in New York City! 
 
 Much of my work is whimsical and abstract, inspired by natural forms and vintage adornments. I have always found tattooing to be a form of liberation -- a reclamation of one's body and the way it is perceived, and a commitment to honoring one's own authentic self in a society that expects assimilation and privileges invisibility.
 
