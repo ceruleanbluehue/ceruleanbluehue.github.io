@@ -1,7 +1,7 @@
 ### Before Your Appointment 
 
 #### Location
-- I work out of my home studio in Harlem -- I will provide the address after confirming your appointment.
+- TBD!
 
 #### Payment 
 - I accept cash, Venmo, and Zelle, with a slight preference for Zelle but really all are good with me :)
