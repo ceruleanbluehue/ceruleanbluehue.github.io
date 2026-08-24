@@ -1,7 +1,7 @@
 ### Before Your Appointment 
 
 #### Location
-- TBD!
+- I'll be announcing
 
 #### Payment 
 - I accept cash, Venmo, and Zelle, with a slight preference for Zelle but really all are good with me :)

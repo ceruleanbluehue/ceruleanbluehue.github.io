@@ -19,7 +19,7 @@
 - Your deposit will be *forfeit, and a new deposit will be required to rebook* if you no-show or cancel/reschedule less than 24 hours in advance. Exceptions may be made on a case-by-case basis -- if something urgent comes up please let me know!
 
 #### Pricing
-- My minimum quote is $50 and my average quote is around $150-200. I am happy to provide pricing info prior to your appointment!
+- My minimum quote is $100 and my average quote is around $200-300. I am happy to provide pricing info prior to your appointment!
 - Factors that go into pricing: size, complexity of design, color (colored inks take longer to poke into the skin than black ink), placement (torso placements are stretchy -- a 2-inch tattoo may end up being closer to 3 or 4 inches)
 - Whenever I can, I'm happy to offer sliding scale appointments, work with budgets, and barter. If this is something you're interested in, please reach out!
 - Tips are very appreciated but not at all required. I also appreciate non-monetary tips, especially handmade goods and sweet treats :)
